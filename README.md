@@ -1,1 +1,1 @@
-# 麦周刊-Monthly
+# 麦周刊-M-Monthly
